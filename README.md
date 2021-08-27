@@ -3,7 +3,7 @@ My name is Muhammad Al-Habib Ouadhour <br>
 I'm from Tunisia, I am 26 yo.
 
 # What do I like_
-I'm interested in every thing related to the computers and operating systems.<br>
+I'm interested in everything related to computers and operating systems.<br>
 You can call me the Jack of all trades, Master of none 😄
 <br>
 But this was before, when I started I'd like to know everything.<br>
